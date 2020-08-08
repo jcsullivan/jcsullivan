@@ -1,9 +1,3 @@
-### Hi there 👋
-
-
-
-# Jonathan Sullivan
-
 Salt Lake City, UT - (865) 275-5044 - jonathan.c.sullivan\@gmail.com
 
 ## Education
