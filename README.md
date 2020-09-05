@@ -26,6 +26,9 @@ United States Navy Officer Schools, Newport, RI and Mayport, FL
 
 ## Work Experience
 
+**Herjavec Group**, Software Engineering Intern for Assessment and Testing  
+Remote, Salt Lake City, UT August 2002 -- Present  
+
 **Yardi Systems Inc.**, Associate Technical Account Manager for RENTCafé  
 Raleigh, NC May 2018 -- June 2019
 
