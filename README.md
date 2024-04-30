@@ -4,7 +4,7 @@ Salt Lake City, UT - (865) 275-5044 - jonathan.c.sullivan\@gmail.com
 
 University of Utah, Salt Lake City, UT
 
--   Masters of Software Development, 4.0 GPA, anticipated graduation December 2020
+-   Masters of Software Development, 4.0 GPA, December 2020
 
 Georgia Institute of Technology, Atlanta, GA
 
